@@ -16,3 +16,6 @@ Our cousin RNA (viruses), are not life.
 Now onto my story.
 
 Thank you.
+
+---
+OP1 CC4 Copyleft 2017 [J. Morio Sakaguchi](https://morio.github.io/autobiography)
